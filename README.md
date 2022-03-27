@@ -1,11 +1,13 @@
 ### Hi there 👋
 
-<!--
-**quyenthucdoan/quyenthucdoan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Let me introduce myself!!!! 💁‍♀
 
-Here are some ideas to get you started:
+🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷
 
-- 🔭 I’m currently working on ISLAB
-- 🌱 I’m currently learning how to extract the value from data
-- 📫 How to reach me: in email "quyen.thucdoan@gmail.com" or messager "https://www.facebook.com/quyen.thucdoan/" 
--->
+✨Đoàn Thục Quyên✨ is my orginal name but everybody can call me Grace Waston, my English name. 🤞🤞🤞
+
+- 🔭 I’m currently working on 🍄ISLAB🍄                                                                                
+- 🌱 I’m currently learning how to 🥑extract the value from data🥑                                                       
+- 📫 How to reach me: in email "quyen.thucdoan@gmail.com" or messager 🍔"https://www.facebook.com/quyen.thucdoan/"  
+-      
+🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷
