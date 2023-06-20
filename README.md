@@ -8,6 +8,6 @@ Let me introduce myself!!!! 💁‍♀
 
 - 🔭 I’m currently working on 🍄ISLAB🍄                                                                                
 - 🌱 I’m interested in searching how to 🥑extract the value from data🥑                                                       
-- 📫 How to reach me: in email "quyen.thucdoan@gmail.com" or messager 🍔"https://www.facebook.com/quyen.thucdoan/"  
+- 📫 How to reach me: in email "quyen.thucdoan@gmail.com" or messenger 🍔"https://www.facebook.com/quyen.thucdoan/"  
       
 🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷
