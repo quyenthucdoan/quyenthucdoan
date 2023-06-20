@@ -9,7 +9,7 @@ Let me introduce myself!!!! 💁‍♀
 - 🔭 I’m currently working on 🍄ISLAB🍄                                                                                
 - 🌱 I’m interested in searching how to 🥑extract the value from data🥑                                                      
 - 📫 Feel free to contact me:                                                                                                                                         
-++++++ Email "quyen.thucdoan@gmail.com"
+++++++ Email "quyen.thucdoan@gmail.com"                                                                                
 ++++++ Messenger 🍔"https://www.facebook.com/quyen.thucdoan/"  
       
 🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷
