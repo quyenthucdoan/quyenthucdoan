@@ -4,7 +4,7 @@ Let me introduce myself!!!! 💁‍♀
 
 🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷🌷
 
-✨Đoàn Thục Quyên✨ is my orginal name but everybody can call me Grace Waston, my English name. 🤞🤞🤞 
+✨Đoàn Thục Quyên✨ is my orginal name but everybody can call me Grace, my English name. 🤞🤞🤞 
                                                                                                        
 - 🔭 I’m currently working on 🍄ISLAB🍄                                                                                
 - 🌱 I’m interested in searching how to 🥑extract the value from data🥑                                                      
